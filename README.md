@@ -1,7 +1,7 @@
 # 💫 About Me:
 My Name Is Gaurav Bora  
 
-I am pursuing Btech 2nd year student From Graphic Era Hill University Bhimtal campus 
+I am pursuing Btech 3rd year student From Graphic Era Hill University Bhimtal campus 
 
 
 ## 🌐 Socials:
